@@ -1,0 +1,41 @@
+https://www.youtube.com/watch?v=KJ-icYRJ29s
+
+https://learngerman.dw.com/en/meine-eltern/l-37664246/lm
+
+
+| DE | EN | RU |
+|:---|:---|:---|
+JÜRGEN:||
+Wie lange haben Sie Frau González nicht mehr gesehen?||
+MAX:||
+Ungefähr zwei Wochen.||
+JÜRGEN:||
+Und … hat sie denn nicht gesagt, wohin sie geht? Wissen Sie nicht, ob sie verreisen wollte?||
+MAX:||
+Nein, sie hat uns nichts gesagt.||
+JÜRGEN:||
+Warum haben Sie die Polizei nicht früher informiert?||
+TAREK:||
+Na ja. Jeder kann mal zwei Wochen weg sein, oder?||
+JÜRGEN:||
+Haben Sie ihre Handynummer? Haben Sie sie angerufen?||
+MAX:||
+Ja, aber ich erreiche sie nicht.||
+NICO:||
+Das sind meine Eltern.||
+JÜRGEN:||
+Was machen denn Ihre Eltern?||
+NICO:||
+Mein Vater ist Anwalt und meine Mutter Ingenieurin.||
+JÜRGEN:||
+Glauben Sie, dass Ihre Tante in Spanien ist und Ihre Eltern besucht? Können Sie Ihre Eltern anrufen und fragen?||
+NICO:||
+Sie ist sicher nicht dort. Der Kontakt ist nicht sehr gut.||
+JÜRGEN:||
+Wo in Spanien wohnen Ihre Eltern?||
+NICO:||
+Meine Eltern wohnen in Sevilla.||
+JÜRGEN:||
+Hm … Na, dann schauen Sie mal hier.||
+MAX:||
+Was macht Yara in der Schweiz?||

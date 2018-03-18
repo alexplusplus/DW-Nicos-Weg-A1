@@ -1,0 +1,56 @@
+https://www.youtube.com/watch?v=SEV3kmyQCII
+
+https://learngerman.dw.com/en/wie-spat-ist-es/l-37453621/lm
+
+
+| DE | EN | RU |
+|:---|:---|:---|
+TAREK:||
+Unsere Öffnungszeiten ? Wir haben von Dienstag bis Sonntag von neun bis 23 Uhr geöffnet. Am Montag haben wir leider geschlossen. Ja! Danke! Tschüss!||
+MAX:||
+Magst du noch eine Limonade, Nico?||
+NICO:||
+Ja, ich nehme noch eine Limonade.||
+INGE:||
+So! Es ist zwölf Uhr. Das Mittagsangebot beginnt jetzt.||
+TAREK:||
+Ja!||
+INGE:||
+Was gibt's denn heute?||
+TAREK:||
+Heute gibt es Rouladen mit Rotkraut und Kartoffeln oder Fisch mit Gemüse oder die türkische Linsensuppe.||
+INGE:||
+Vielleicht nehme ich die … den Fisch … Nein, die Suppe … Oder warte! Die Rouladen , ich nehme die Rouladen.||
+TAREK:||
+Sicher?||
+MAX:||
+Bitte schön.||
+NICO:||
+Danke schön. Entschuldigung, wie viel Uhr ist es?||
+MAX:||
+Es ist zwölf Uhr.||
+MAX:||
+Du wartest auf Lisa, oder? Kommt sie um Viertel nach zwölf oder um halb eins?||
+NICO:||
+Um halb zwölf.||
+MAX:||
+Oh, normalerweise ist sie pünktlich.||
+TAREK:||
+„Das Marek“. Hier ist Tarek. Hallo, Lisa!||
+Nico?||
+Ja, der ist hier. Okay. Ich sage es Nico. Bis gleich! Tschüss!||
+NICO:||
+War das Lisa?||
+TAREK:||
+Ja. Sie kommt um Viertel vor eins, also um 12:45 Uhr.||
+Ich meine, sie kommt in 45 Minuten. Das Bewerbungsgespräch dauert länger.||
+NICO:||
+Okay, ich verstehe.||
+TAREK:||
+Ich bin übrigens Tarek.||
+NICO:||
+Hallo, ich bin Nico!||
+MAX:||
+Oh, Nico, kannst du mir helfen?||
+NICO:||
+Ja, gerne.||
