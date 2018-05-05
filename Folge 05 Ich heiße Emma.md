@@ -15,7 +15,7 @@ Und wie heißt du?||А как тебя зовут?
 LISA: Ich heiße Lisa.||Меня зовут Лиза.
 EMMA: Nein, du heißt Nico.||Нет, тебя зовут Нико.
 LISA: Das ist Emma.||Это Эмма.
-Emma spinnt gerade.||Эмма шутит.
+Emma spinnt gerade.||Эмма просто прикалывается.
 EMMA: Ich … heiße …||Меня ... зовут ...
 Ey!||Эй!
 LISA: Emma!||Эмма!
@@ -24,5 +24,5 @@ Aber jetzt ist das „N“ weg!||Но теперь "Н" пропала!
 Das war Nico!||Это все Нико!
 NICO: Ich?||Я?
 LISA: Moment, bitte.||Минуту, пожалуйста.
-Ich muss noch kurz tanken.||Мне надо заправиться.
+Ich muss noch kurz tanken.||Мне надо по-быстрому заправиться.
 NICO: Taxi! Stopp!||Такси! Стой!
